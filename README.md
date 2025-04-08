@@ -1,3 +1,5 @@
 #  HGB Website... Tread with caution :D
-What's uppp
-yeah..
+
+## Daniel Adoghe...TM
+
+Sponsored by TIH & STADAS
